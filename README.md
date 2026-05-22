@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **divyambharne844@gmail.com**
 
-- ⚡ Fun fact **I can spend hours fixing one small bug in code 😀**
+- ⚡ Fun fact **My code works… sometimes on the first try.” 😀**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
